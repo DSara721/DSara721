@@ -3,5 +3,4 @@
 - 👀 I’m looking to collaborate on future projects & developments. 
 - 💌 How to reach me dianasara935@yahoo.com
 
-DSara721 is a ✨ special ✨ repository because its `README.md is on your profile.
-
+💃🏻 DSara721 is a ✨ special ✨ repository ✨
